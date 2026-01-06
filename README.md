@@ -1,2 +1,2 @@
 # yousse0
-Hi guy, i am @YoassefVT212, student at University. welcome
+Hello! I am Yoassef, a student at Savitribai Phule Pune University.
